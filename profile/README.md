@@ -1,2 +1,3 @@
 # HellTokyo
-GP11 A/B のみの組織です
+GPABのみの招待にして下さい
+作成はprivateのみ
